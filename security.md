@@ -1,6 +1,6 @@
 # 📦 Windows 10 Activator — Latest Version Free Download (2026)
 
-[![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square)](https://img.shields.io) [![Platform](https://img.shields.io/badge/Platform-Windows-informational?style=flat-square)](https://img.shields.io) [![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)](https://img.shields.io)
+![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Platform](https://img.shields.io/badge/Platform-Windows-informational?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)
 
 Download Windows 10 activator for free — the latest 2026 version, tested and working on all current Windows and Office releases. **100% free. No registration. No hidden fees.**
 
