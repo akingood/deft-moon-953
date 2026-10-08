@@ -144,4 +144,4 @@ Use the green button in the Quick Start section above.
 
 ---
 
-*Updated 2026-10-07 · Shared under the [MIT License](https://opensource.org/licenses/MIT)*
+*Updated 2026-10-08 · Shared under the [MIT License](https://opensource.org/licenses/MIT)*
